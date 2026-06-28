@@ -1,4 +1,4 @@
-# 🦄 项目更新中……预计元旦后完成期末考试资料上传
+# 🦄 项目更新中……
 
 > Breaking the barrier of information, Engineering the future.
 
